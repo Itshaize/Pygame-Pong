@@ -1,3 +1,1 @@
-Dio German
-Mauricio Jacome
-Ismael Cornejo
+Dio German, Mauricio Jacome , Ismael Cornejo
